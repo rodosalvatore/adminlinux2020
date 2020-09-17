@@ -1,1 +1,0 @@
-# adminlinux2020
